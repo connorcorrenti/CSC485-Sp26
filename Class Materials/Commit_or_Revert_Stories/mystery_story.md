@@ -13,10 +13,10 @@ Objects, notes, and minor inconsistencies began to appear. Some were real, some 
 A few individuals seem connected to the events, though their roles are unclear.
 
 ## The Twist
-Just when things seemed straightforward, new evidence complicated the case.
+Just when things seemed straightforward, new evidence complicated the case. 
 
 ## Investigation
 Decisions must be made about which clues to follow and which to ignore, however the detective on the case was not helpful to the investigation.
 
 ## The Outcome
-The mystery is close to being resolved, but there is one more big piece needed. What will happen next?
+The mystery is close to being resolved, but there is one more big piece needed. What will happen next? The individuals got away with it and ran free into a different country.
